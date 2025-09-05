@@ -1,2 +1,0 @@
-# Pandya-Bansi-
-Bansi
